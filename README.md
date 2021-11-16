@@ -1,0 +1,1 @@
+O Curso é prático e rápido!
